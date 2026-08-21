@@ -5,7 +5,7 @@
 
 
 ㅤ ˗ˋˏ ♡ ˎˊ˗ㅤㅤ[新𝖻𝗈𝗈𝗄](https://weakhero.atabook.org/)  <br />
-[rentry](https://rentry.org/sorcerer) ㅤ ㅤʚɞㅤㅤ [rbyi](https://rentry.org/selfpreservation6) 
+[rentry](https://rentry.org/sorcerer) ㅤ (𓂂꜆◕⩊◕꜀𓂂)
 
 
 

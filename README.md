@@ -3,6 +3,8 @@
   ![](https://komarev.com/ghpvc/?username=ashswagin&label=♡&style=for-the-badge&color=000000)
 
 <img src="https://media1.tenor.com/m/_uQyyMLHEJEAAAAd/enneagram-sp4.gif" width="300">ㅤ
+
+I dont like receiving whispers sorry i probably won't reply if you whisper me
  
 
 ㅤ ˗ˋˏ ♡ ˎˊ˗ㅤㅤ[新𝖻𝗈𝗈𝗄](https://weakhero.atabook.org/)  <br />

@@ -1,15 +1,11 @@
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=ashswagin&label=♡&style=for-the-badge&color=000000)
+  ![](https://komarev.com/ghpvc/?username=ashswagin&label=♡&style=for-the-badge&color=C0F54D)
 
-<img src="https://media1.tenor.com/m/_uQyyMLHEJEAAAAd/enneagram-sp4.gif" width="300">ㅤ
+<img src="https://file.garden/aj0ilzqX7X1ymSKy/dd1a2fe3e0d518716323f358f980a1af.jpg" width="300">ㅤ
 
-I dont like receiving whispers sorry i probably won't reply if you whisper me
- 
 
-ㅤ ˗ˋˏ ♡ ˎˊ˗ㅤㅤ[新𝖻𝗈𝗈𝗄](https://weakhero.atabook.org/)  <br />
-[rentry](https://rentry.co/sorcerer) ㅤ (𓂂꜆◕⩊◕꜀𓂂)
-
+ㅤ 
 
 
 

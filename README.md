@@ -2,12 +2,12 @@
 
   
 
-<img src="https://file.garden/aj0ilzqX7X1ymSKy/4e7077569107b34c2a4cfc8b36e3227c.jpg" width="300">ㅤ
+<img src="https://media1.tenor.com/m/e5nLvYmM-foAAAAd/newjeans-omg.gif" width="300">ㅤ
 
-icant stop laughing at this bs
+![](https://komarev.com/ghpvc/?username=ashswagin&label=🐰&style=for-the-badge&color=000000) 　newjeans ot5 
 
 
-![](https://komarev.com/ghpvc/?username=ashswagin&label=✘&style=for-the-badge&color=000000)
+
 ㅤ 
 
 

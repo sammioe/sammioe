@@ -2,9 +2,9 @@
 
   
 
-<img src="https://media1.tenor.com/m/e5nLvYmM-foAAAAd/newjeans-omg.gif" width="300">ㅤ
+<img src="https://media1.tenor.com/m/_TN-1J-nF7kAAAAC/kanimomo-kani.gif" width="300">ㅤ
 
-![](https://komarev.com/ghpvc/?username=ashswagin&label=🐰&style=for-the-badge&color=000000) 　newjeans ot5 (ᵔ⩊ᵔ)
+![](https://komarev.com/ghpvc/?username=ashswagin&label=🐰&style=for-the-badge&color=000000) 　 (ᵔ⩊ᵔ)
 
 
 

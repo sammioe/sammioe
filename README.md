@@ -3,9 +3,8 @@
 ![](https://komarev.com/ghpvc/?username=ashswagin&label=♡&style=for-the-badge&color=000000) 　 
   
 
-<img src="https://media1.tenor.com/m/9477HFe_oD0AAAAC/suselle-susie.gif" width="280">ㅤ
+<img src="https://media.tenor.com/1gbe8A9IPzIAAAAi/sapmton-deltarune.gif" width="280">ㅤ
 
-I like suselle and kriselle
 
 
 
